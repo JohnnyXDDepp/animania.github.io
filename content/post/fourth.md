@@ -7,4 +7,5 @@ featured_image: "logo.jpeg"
 tags: ["scene"]
 
 ---
-Chainsaw Man Vol 1-12 Manga at just Rs.399. Message on instagram to buy. (animania_india)
+Follow this link for our Instagram handle : https://www.instagram.com/animania_india/      
+Id : animania_india
